@@ -8,5 +8,5 @@
 5. networking reinforcement
 6. investigation mindset 
 
-# Yesteraday i improves in reasoning, but still mixed concepts under pressure but today i will learn less new information , more stronf foundation 
+# Yesteraday i improved in reasoning, but still mixed concepts under pressure but today i will learn less new information , more stronf foundation 
 
